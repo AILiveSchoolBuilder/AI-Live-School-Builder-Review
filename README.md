@@ -172,77 +172,135 @@ Creating and managing an online school or tutoring platform can be <b>time-cons
 <div>
 <h2>PRICES &amp; OTOS INCLUDED IN AI LIVE SCHOOL BUILDER OFFER</h2>
 <b>👉 FRONTEND: AI LIVE SCHOOL BUILDER $9.72 ONE-TIME</b> The Front End version of AI Live School Builder gives you access to the core features needed to create, manage, and monetize AI-powered schools. You can launch interactive online schools with AI teachers, live classes, and built-in monetization options:
+
 ✅ Create AI-Powered Live Schools
+
 ✅ AI Teachers for 20+ Subjects
+
 ✅ Live &amp; Interactive Classes
+
 ✅ Student Management System
+
 ✅ Built-in Monetization
+
 ✅ AI-Powered Q&amp;A &amp; Tutoring
+
 Plus, with the <b><u>Unlimited Reseller License</u></b>, <u>(exclusively available through the exit pop-up on the sales page)</u>, you can sell AI Live School Builder accounts to your clients, offering a new revenue stream.
 
-<b>👉 UPSELL1: AI LIVE SCHOOL BUILDER UNLIMITED $67</b> This upgrade gives you unlimited access to all AI Live School Builder features, allowing you to create, automate, and monetize without restrictions. It includes:
+<b>👉 UPSELL1: AI LIVE SCHOOL BUILDER UNLIMITED $67</b> This upgrade gives you unlimited access to all AI Live School Builder features, allowing you to create, automate, and monetize without restrictions. It includes:
+
 ✅ Unlimited AI Live School Creations
+
 ✅ Unlimited AI Video &amp; Shorts Creation
+
 ✅ Unlimited AI Live School Avatars
+
 ✅ Unlimited Premium Voice-Overs
+
 ✅ Unlimited Interactive Video Elements
+
 ✅ Unlimited Subscribers Finder
+
 ✅ Unlimited Logo Designer &amp; Thumbnail Maker
+
 ✅ Unlimited YouTube Monetization
+
 ✅ Unlimited Monthly Subscriptions
+
 ✅ Commercial License Included
 
 <b>👉 UPSELL2: AI LIVE SCHOOL BUILDER STUDIO PRO $37</b> Upgrade to AI Live School Builder PRO and access advanced tools to enhance video creation, boost engagement, and maximize your earnings. This upgrade unlocks powerful customization, AI automation, and premium editing features. You get:
+
 ✅ Advanced Video Editing Tools
+
 ✅ Facial Expressions &amp; Emoticons
+
 ✅ nteractive Video Elements
+
 ✅ PRO Virtual AI YouTubers
+
 ✅ Microsoft Copilot Pro Integration
+
 ✅ ChatGPT Script Writer
+
 ✅ AI Special Thumbnail Creator
+
 ✅ Unlimited VIP Lead Finder
+
 ✅ Regular Updates &amp; Priority Support
 
-<b>👉 UPSELL3: AI LIVE SCHOOL BUILDER DFY $167</b> With the Done-For-You (DFY) upgrade, our team will create, launch, and monetize your AI-powered school for you. Get a fully set-up, ready-to-sell online school loaded with trending AI video content and revenue streams.
+<b>👉 UPSELL3: AI LIVE SCHOOL BUILDER DFY $167</b> With the Done-For-You (DFY) upgrade, our team will create, launch, and monetize your AI-powered school for you. Get a fully set-up, ready-to-sell online school loaded with trending AI video content and revenue streams.
+
 ✅ Pre-Made AI Online Schools
+
 ✅ Trending AI Viral Video Content
+
 ✅ Automated AI Video Updates
+
 ✅ Built-In Monetization Setup
+
 ✅ Daily Customer &amp; Sales Boost
+
 ✅ 100% Done-For-You System
+
 ✅ 1-on-1 Support Team Access
 
-<b>👉 UPSELL4: AI LIVE SCHOOL BUILDER AUTOMATION SUITE $37</b> The Automation Suite upgrade transforms your AI Live School Builder into a fully automated, self-updating, revenue-generating system. It drives free targeted traffic, updates content automatically, and helps you monetize effortlessly.
+<b>👉 UPSELL4: AI LIVE SCHOOL BUILDER AUTOMATION SUITE $37</b> The Automation Suite upgrade transforms your AI Live School Builder into a fully automated, self-updating, revenue-generating system. It drives free targeted traffic, updates content automatically, and helps you monetize effortlessly.
+
 ✅ 100% Free Automated Traffic
+
 ✅ Self-Updating AI Content
+
 ✅ Daily Passive Income Potential
+
 ✅ AI-Powered Affiliate Promotions
+
 ✅ Full AI School Automation
+
 ✅ 10X Better Results &amp; Competitive Edge
 
-<b>👉 UPSELL5: AI LIVE SCHOOL BUILDER ELITE TRAFFIC $67</b> The Elite Traffic upgrade gives you fully automated, targeted traffic to grow your AI Live School Builder account effortlessly. Whether you want to drive traffic to your AI school, promote affiliate offers, or even start your own solo ads agency, this upgrade provides a proven sales-generating system.
+<b>👉 UPSELL5: AI LIVE SCHOOL BUILDER ELITE TRAFFIC $67</b> The Elite Traffic upgrade gives you fully automated, targeted traffic to grow your AI Live School Builder account effortlessly. Whether you want to drive traffic to your AI school, promote affiliate offers, or even start your own solo ads agency, this upgrade provides a proven sales-generating system.
+
 ✅ 100% Free Automated Traffic
+
 ✅ AI Website Traffic Boost
+
 ✅ Affiliate Offer Promotion
+
 ✅ Solo Ads Agency Opportunity
+
 ✅ 10X Better Results Over Other Users
+
 ✅ Complete Automation
 
-<b>👉 UPSELL6: AI LIVE SCHOOL BUILDER AI MARKETING KIT $47</b> The Marketing Kit upgrade gives you a complete AI-powered suite to create professional marketing assets, automate engagement, and boost your brand effortlessly - all from a single dashboard.
+<b>👉 UPSELL6: AI LIVE SCHOOL BUILDER AI MARKETING KIT $47</b> The Marketing Kit upgrade gives you a complete AI-powered suite to create professional marketing assets, automate engagement, and boost your brand effortlessly - all from a single dashboard.
+
 ✅ Stunning Website Creation
+
 ✅ 3D Video Builder
+
 ✅ AI Voice-Over Generator
+
 ✅ AI Music Composer
+
 ✅ AI Talking Images
+
 ✅ Eye-Catching Graphics Designer
+
 ✅ Marketing Content &amp; Copywriting
+
 ✅ Instant Customer Replies
 
-<b>👉 UPSELL7: AI LIVE SCHOOL BUILDER AGENCY $147-$297</b> With the Agency License, you can sell AI Live School Builder services to clients and build a profitable business. This upgrade allows you to create and manage unlimited client accounts while keeping 100% of the profits with no revenue sharing.
+<b>👉 UPSELL7: AI LIVE SCHOOL BUILDER AGENCY $147-$297</b> With the Agency License, you can sell AI Live School Builder services to clients and build a profitable business. This upgrade allows you to create and manage unlimited client accounts while keeping 100% of the profits with no revenue sharing.
+
 ✅ Create Unlimited Client Accounts
+
 ✅ Keep 100% of the Profits
+
 ✅ DFY Customer Support
+
 ✅ High-Demand, Recurring Income
+
 ✅ Commercial &amp; Agency License Included
 
 <b>👉 UPSELL8: AI LIVE SCHOOL BUILDER COURSE MARKETPLACE $37</b> The AI Course Marketplace upgrade allows you to monetize your AI Live School Builder and AI Tuber content effortlessly. With exclusive access to money-making strategies, you can boost profits and achieve 100X daily income with minimal effort.
